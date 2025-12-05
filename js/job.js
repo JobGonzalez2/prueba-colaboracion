@@ -1,1 +1,1 @@
-yo soy job gonzalez cristiano ronaldo vscolombia;
+i manito-
